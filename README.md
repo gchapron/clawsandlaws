@@ -1,1 +1,1 @@
-# A repository of public documents regardings large carnivore policies in the EU
+# A repository of public documents regarding large carnivore policies in the EU
